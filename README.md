@@ -52,3 +52,7 @@
 1.9
 DE
 DG
+I am bullish
+to the moon
+987Khan
+mojma
