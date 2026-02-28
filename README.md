@@ -60,3 +60,4 @@ fall in love
 for my love
 life is short
 so try to enjoy it
+may Allah bless you
