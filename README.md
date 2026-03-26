@@ -62,3 +62,4 @@ life is short
 so try to enjoy it
 may Allah bless you
 finished my homework
+I am lucky
